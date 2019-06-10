@@ -2,7 +2,7 @@
 
 ## Oliver's remarks
 
-### I worked with no one and received no additional help.
+I worked with no one and received no additional help.
 
 ## Holmes's remarks
 
